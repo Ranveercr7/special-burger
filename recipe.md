@@ -1,0 +1,3 @@
+Heat the grill or a skillet to medium heat. In a medium bowl, mix the turkey breast, onion, cilantro, garlic powder, onion powder, cumin, salt, pepper and egg. Form the mixture into 2 4-ounce patties.
+
+Spray the cooking surface with cooking spray and place the patties on top. Cook for approximately 5 minutes on each side until the patties reach an internal temperature of 160 F. Remove from heat and allow them to rest until reaching 165 F. Serve on whole-grain buns.
